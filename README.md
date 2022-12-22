@@ -1,2 +1,2 @@
 # hello-world
-All about a pansexual, demi-goddess, that loves you. &lt;3 
+All about a pansexual, demi-goddess, that walks the olde path.
